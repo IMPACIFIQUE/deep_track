@@ -8,7 +8,7 @@ DeepTracker is a Windows desktop dashboard for launching remote desktop clients 
 - Opens RustDesk and copies the peer ID you enter; complete the connection in RustDesk.
 - Adds a shortcut to the local sidebar after you launch a connection.
 - Checks whether an RDP port can be reached.
-- Provides local task notes and a dashboard for saved connections.
+- Provides a local task list and dashboard for recent connections.
 
 DeepTracker is a controller dashboard, not a remote agent. Installing it on another PC does not enroll that PC, expose its running apps or files, or start a remote session. RustDesk or Windows Remote Desktop must be configured separately. The remote PC owner must approve RustDesk access; Windows RDP uses Windows account authentication and must be enabled on a supported Windows edition.
 
@@ -24,7 +24,7 @@ pyinstaller --noconfirm DeepTracker.spec
 iscc installer\DeepTracker.iss
 ```
 
-The finished installer is written to `dist-installer\DeepTrackerSetup.exe`. A GitHub Actions workflow also builds the installer when run manually or when a `v*` version tag is pushed. Tagged builds are published as GitHub Releases.
+The finished installer is written to `dist-installer\DeepTrackerSetup.exe`. A GitHub Actions workflow builds the installer on pushes to `main` and when run manually. Tagged builds are published as GitHub Releases.
 
 ## Connect to a PC
 
