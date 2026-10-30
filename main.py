@@ -1,1 +1,438 @@
-Yªηx-®ιάjΧΆλiΊΪ+§j[h‘ιάΆινηΞ=N‹Z–‹­¦λew¬Υ¥µΑ½ΙΠ‘…Ρ•Ρ¥µ”4)¥µΑ½ΙΠ½Μ4)¥µΑ½ΙΠΡ¥µ”4(4)¥µΑ½ΙΠΡ­¥ΉΡ•Θ…ΜΡ¬4(4)¥µΑ½ΙΠΥΝΡ½µΡ­¥ΉΡ•Θ…ΜΡ¬4(4)™Ι½΄…Ή¥΄¥µΑ½ΙΠ…Ή¥µ…Ρ”°…Ή•°°•…Ν•}½ΥΡ}Υ‰¥°ΑΥ±Ν”°Ρέ••Έ4)™Ι½΄Ρ΅•µ”¥µΑ½ΙΠ€΅Q%Y°	°	=IH°9QId°1=\°I8°I9}%4°!=YH°4(€€€€€€€€€€€€€€€€€€5UQ°A90°A90Θ°I°…ΑΑ±ε}Ρ΅•µ”¤4)™Ι½΄Ρ•Ιµ¥Ή…°¥µΑ½ΙΠQ•Ιµ¥Ή…°4)™Ι½΄Υ¤¥µΑ½ΙΠ…µ‰¥•ΉΡ}‰…­Ι½ΥΉ°±½ά°Ι•Ω•…°°Ρ½…ΝΠ4)™Ι½΄ΥΡ¥±Μ¥µΑ½ΙΠ%=9}%H°±½…‘}‰Ι…Ή‘}¥½Έ°±½…‘}¥½Έ4(4)™Ι½΄Α…•ΜΉ!½µ”¥µΑ½ΙΠ!½µ•A…”4)™Ι½΄Α…•ΜΉQ…Ν¬¥µΑ½ΙΠQ…Ν­A…”4)™Ι½΄Α…•ΜΉ•Ω¥”¥µΑ½ΙΠ•Ω¥•A…”4)™Ι½΄Α…•ΜΉM•ΡΡ¥ΉΜ¥µΑ½ΙΠM•ΡΡ¥ΉΝA…”4(4(1¥Ή­Μ¥ΈΡ΅”Q=@‰…Θ€΅±…‰•°°Α…”±…ΝΜ°¥½Έ¤4)Q=A}AL€τl4(€€€€ ‰!½µ”°!½µ•A…”°€‰΅½µ”¤°4(€€€€ ‰Q…Ν¬°Q…Ν­A…”°€‰Ρ…Ν¬¤°4(€€€€ ‰M•ΡΡ¥ΉΜ°M•ΡΡ¥ΉΝA…”°€‰Ν•ΡΡ¥ΉΜ¤°4)t4(4(4)±…ΝΜ••ΑQΙ…­•ΙΑΐ΅Ρ¬ΉQ¬¤θ4(€€€‘•}}¥Ή¥Ρ}|΅Ν•±¤θ4(€€€€€€€…ΑΑ±ε}Ρ΅•µ” ¤4(€€€€€€€ΝΥΑ•Θ ¤Ή}}¥Ή¥Ρ}| ¤4(€€€€€€€Ρ¬ΉΝ•Ρ}…ΑΑ•…Ι…Ή•}µ½‘” ‰‘…Ι¬¤4(4(€€€€€€€Ν•±ΉΡ¥Ρ±” ‰••ΑQΙ…­•Θ¤4(€€€€€€€Ν•±Ή•½µ•ΡΙδ ΔΘΤΑΰΰΐΐ¬Θ¬Θ¤4(€€€€€€€Ν•±Ήµ¥ΉΝ¥ι” Δΐΰΐ°€άΐΐ¤4(€€€€€€€Ν•±Ή…™Ρ•Θ Πΐ°Ν•±Ή}™¥Ρ}Ρ½}ΝΙ••Έ¤4(4(€€€€€€€¥Ό€τ½ΜΉΑ…Ρ Ή©½¥Έ΅%=9}%H°€‰…ΑΐΉ¥Ό¤4(€€€€€€€¥½ΜΉΑ…Ρ Ή•α¥ΝΡΜ΅¥Ό¤θ4(€€€€€€€€€€€Ν•±Ή…™Ρ•Θ Θΐΐ°±…µ‰‘„θΝ•±Ή¥½Ή‰¥Ρµ…ΐ΅¥Ό¤¤4(4(€€€€€€€Ν•±Ή‰ΥΡΡ½ΉΜ€τντ4(€€€€€€€Ν•±ΉΑ…•Μ€τντ4(€€€€€€€Ν•±ΉΥΙΙ•ΉΠ€τ9½Ή”4(€€€€€€€Ν•±Ή¥½ΉΜ€τντ4(€€€€€€€Ν•±Ή}ΝΉ…ΑΝ΅½Π€τ9½Ή”4(€€€€€€€Ν•±Ή‘•Ω¥•Ν}½Α•Έ€τQΙΥ”4(€€€€€€€Ν•±Ή}ΝΡ…ΙΡ•€τΡ¥µ”ΉΡ¥µ” ¤4(€€€€€€€Ν•±Ή}Ή…Ω}™€τντ4(€€€€€€€Ν•±Ή}¥Ή‘}ΰ€τ€ΐΈΐ4(€€€€€€€Ν•±Ή}¥Ή‘}ά€τ€ΐΈΐ4(€€€€€€€Ν•±Ή}Ρ½…ΝΠ€τ9½Ή”4(€€€€€€€Ν•±Ή}‰½½Ρ¥Ή€τ…±Ν”4(€€€€€€€Ν•±Ή}Ή½Ρ¥™¥…Ρ¥½ΉΝ}•Ή…‰±•€τQΙΥ”4(4(€€€€€€€Ν•±Ή}‰Υ¥±‘}Ρ½Α‰…Θ ¤4(€€€€€€€Ν•±Ή}‰Υ¥±‘}…Ν¥‘” ¤4(€€€€€€€Ν•±Ή}‰Υ¥±‘}Α…•Μ ¤4(€€€€€€€Ν•±Ή}έ¥Ι” ¤4(€€€€€€€Ν•±Ή}‰¥Ή‘}Ν΅½ΙΡΥΡΜ ¤4(4(€€€€€€€Ν•±ΉΝ΅½έ}Α…” ‰!½µ”°…Ή¥µ…Ρ•υ…±Ν”¤4(€€€€€€€Ν•±ΉΙ•™Ι•Ν΅}‘•Ω¥•Μ ¤4(€€€€€€€Ν•±Ή}Ρ¥¬ ¤4(4(€€€€€€€Ν•±Ή}‰½½Π ¤4(€€€€€€€Ν•±Ή…™Ρ•Θ Δδΐΐ°±…µ‰‘„θΡ½…ΝΠ΅Ν•±°€‰±°ΝεΝΡ•µΜ½Ή±¥Ή”°€‰¥Ή™Ό°€Δΰΐΐ¤¤4(4(€€€€€ττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττ4(€€€€€ΝΙ••Έ™¥Π4(€€€€€ττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττ4(€€€‘•}™¥Ρ}Ρ½}ΝΙ••Έ΅Ν•±¤θ4(€€€€€€€€‰M΅Ι¥Ή¬Ρ΅”έ΅½±”U$έ΅•ΈΡ΅”‘¥ΝΑ±…δ¥ΜΝµ…±±•ΘΡ΅…ΈΡ΅”‘•Ν¥ΈΈ4(€€€€€€€ΝΙ••Ή}ά€τΝ•±Ήέ¥Ή™½}ΝΙ••Ήέ¥‘Ρ  ¤4(€€€€€€€ΝΙ••Ή} €τΝ•±Ήέ¥Ή™½}ΝΙ••Ή΅•¥΅Π ¤4(4(€€€€€€€ΡΙδθ4(€€€€€€€€€€€™Ι½΄ΥΝΡ½µΡ­¥ΉΡ•ΘΉέ¥Ή‘½έΜΉέ¥‘•ΡΜΉΝ…±¥ΉΉΝ…±¥Ή}ΡΙ…­•Θ¥µΑ½ΙΠ€ 4(€€€€€€€€€€€€€€€M…±¥ΉQΙ…­•Θ°4(€€€€€€€€€€€€¤4(€€€€€€€€€€€‘Α¤€τM…±¥ΉQΙ…­•ΘΉ•Ρ}έ¥Ή‘½έ}‘Α¥}Ν…±¥Ή΅Ν•±¤½Θ€ΔΈΐ4(€€€€€€€•α•ΑΠα•ΑΡ¥½Έθ4(€€€€€€€€€€€‘Α¤€τ€ΔΈΐ4(4(€€€€€€€€Q¬Ι•Α½ΙΡΜΩ¥ΙΡΥ…±¥ι•Α¥α•±Μέ΅•ΈΡ΅”ΑΙ½•ΝΜ¥ΜA$µΥΉ…έ…Ι”°4(€€€€€€€€ΝΌΡ΅”Ι•…°‘•Ν­Ρ½ΐ¥Μ€΅±½¥…°Ν¥ι”€¨‘Α¤Ν…±¥Ή¤Έ4(€€€€€€€Α΅εΝ¥…±}ά€τΝΙ••Ή}ά€¨‘Α¤4(€€€€€€€Α΅εΝ¥…±} €τΝΙ••Ή} €¨‘Α¤4(4(€€€€€€€Ρ…Ι•Π€τµ¥Έ ΔΈΘΤ°€΅Α΅εΝ¥…±}ά€΄€ΘΠ¤€Ό€ΔΘΤΐ°€΅Α΅εΝ¥…±} €΄€Δΐΐ¤€Ό€ΰΐΐ¤4(€€€€€€€™…Ρ½Θ€τµ…ΰ ΐΈΜΤ°Ρ…Ι•Π€Ό‘Α¤¤4(4(€€€€€€€¥™…Ρ½Θ€π€ΐΈδδΤθ4(€€€€€€€€€€€Ρ¬ΉΝ•Ρ}έ¥Ή‘½έ}Ν…±¥Ή΅™…Ρ½Θ¤4(€€€€€€€€€€€Ρ¬ΉΝ•Ρ}έ¥‘•Ρ}Ν…±¥Ή΅™…Ρ½Θ¤4(€€€€€€€€€€€Ν•±Ή•½µ•ΡΙδ ΔΘΤΑΰΰΐΐ¬Θ¬Θ¤4(4(€€€€€ττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττ4(€€€€€±…ε½ΥΠ4(€€€€€ττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττ4(€€€‘•}‰Υ¥±‘}Ρ½Α‰…Θ΅Ν•±¤θ4(€€€€€€€Ν•±ΉΡ½Α‰…Θ€τΡ¬ΉQ­Ι…µ”΅Ν•±°΅•¥΅ΠτΨΐ°½ΙΉ•Ι}Ι…‘¥ΥΜτΐ¤4(€€€€€€€Ν•±ΉΡ½Α‰…ΘΉΑ…¬΅Ν¥‘”τ‰Ρ½ΐ°™¥±°τ‰ΰ¤4(€€€€€€€Ν•±ΉΡ½Α‰…ΘΉΑ…­}ΑΙ½Α……Ρ”΅…±Ν”¤4(4(€€€€€€€‰Ι…Ή‘}Ι½Υΐ€τΡ¬ΉQ­Ι…µ”΅Ν•±ΉΡ½Α‰…Θ°™}½±½Θτ‰ΡΙ…ΉΝΑ…Ι•ΉΠ¤4(€€€€€€€‰Ι…Ή‘}Ι½ΥΐΉΑ…¬΅Ν¥‘”τ‰±•™Π°Α…‘ΰτ Δΰ°€Δΐ¤°Α…‘δτά¤4(€€€€€€€Ν•±Ή‰Ι…Ή‘}¥½Έ€τ±½…‘}‰Ι…Ή‘}¥½Έ ΜΘ¤4(€€€€€€€Ρ¬ΉQ­1…‰•°΅‰Ι…Ή‘}Ι½Υΐ°Ρ•αΠτ°¥µ…”υΝ•±Ή‰Ι…Ή‘}¥½Έ°4(€€€€€€€€€€€€€€€€€€€€έ¥‘Ρ τΜΘ°΅•¥΅ΠτΜΘ¤ΉΑ…¬΅Ν¥‘”τ‰±•™Π°Α…‘ΰτ ΐ°€δ¤¤4(€€€€€€€‰Ι…Ή‘}½Αδ€τΡ¬ΉQ­Ι…µ”΅‰Ι…Ή‘}Ι½Υΐ°™}½±½Θτ‰ΡΙ…ΉΝΑ…Ι•ΉΠ¤4(€€€€€€€‰Ι…Ή‘}½ΑδΉΑ…¬΅Ν¥‘”τ‰±•™Π¤4(€€€€€€€Ν•±Ή‰Ι…Ή€τΡ¬ΉQ­1…‰•° 4(€€€€€€€€€€€‰Ι…Ή‘}½Αδ°Ρ•αΠτ‰••ΑQΙ…­•Θ°4(€€€€€€€€€€€™½ΉΠυΡ¬ΉQ­½ΉΠ΅Ν¥ι”τΔΰ°έ•¥΅Πτ‰‰½±¤°Ρ•αΡ}½±½ΘυI8°4(€€€€€€€€¤4(€€€€€€€Ν•±Ή‰Ι…ΉΉΑ…¬΅…Ή΅½Θτ‰ά¤4(€€€€€€€Ρ¬ΉQ­1…‰•°΅‰Ι…Ή‘}½Αδ°Ρ•αΠτ‰Y%=9M=1°Ρ•αΡ}½±½Θυ5UQ°4(€€€€€€€€€€€€€€€€€€€€™½ΉΠυΡ¬ΉQ­½ΉΠ΅Ν¥ι”τδ°έ•¥΅Πτ‰‰½±¤¤ΉΑ…¬΅…Ή΅½Θτ‰ά¤4(€€€€€€€ΑΥ±Ν”΅Ν•±Ή‰Ι…Ή°€‰Ρ•αΡ}½±½Θ°I8°1=\°Α•Ι¥½τΠΘΐΐ°­•δτ‰‰Ι…Ή¤4(4(€€€€€€€™¥ΙΝΠ€τQΙΥ”4(€€€€€€€™½Θ±…‰•°°}Α…•}±…ΝΜ°¥½Ή}Ή…µ”¥ΈQ=A}ALθ4(€€€€€€€€€€€Ν•±Ή¥½ΉΝm±…‰•±t€τ±½…‘}¥½Έ΅¥½Ή}Ή…µ”¤4(€€€€€€€€€€€‰ΡΈ€τΡ¬ΉQ­	ΥΡΡ½Έ 4(€€€€€€€€€€€€€€€Ν•±ΉΡ½Α‰…Θ°Ρ•αΠυ±…‰•°°¥µ…”υΝ•±Ή¥½ΉΝm±…‰•±t°½µΑ½ΥΉτ‰±•™Π°4(€€€€€€€€€€€€€€€έ¥‘Ρ τΔΘΨ°΅•¥΅ΠτΜΨ°4(€€€€€€€€€€€€€€€™}½±½ΘυA90°Ρ•αΡ}½±½ΘυI8°4(€€€€€€€€€€€€€€€΅½Ω•Ι}½±½Θυ!=YH°4(€€€€€€€€€€€€€€€½µµ…Ήυ±…µ‰‘„Ή…µ”υ±…‰•°θΝ•±ΉΝ΅½έ}Α…”΅Ή…µ”¤°4(€€€€€€€€€€€€¤4(€€€€€€€€€€€±½ά΅‰ΡΈ¤4(€€€€€€€€€€€±•™Ρ}µ…Ι¥Έ€τ€ΔΨ¥™¥ΙΝΠ•±Ν”€Μ4(€€€€€€€€€€€™¥ΙΝΠ€τ…±Ν”4(€€€€€€€€€€€‰ΡΈΉΑ…¬΅Ν¥‘”τ‰±•™Π°Α…‘ΰτ΅±•™Ρ}µ…Ι¥Έ°€Μ¤°Α…‘δτΔΘ¤4(€€€€€€€€€€€Ν•±Ή‰ΥΡΡ½ΉΝm±…‰•±t€τ‰ΡΈ4(€€€€€€€€€€€Ν•±Ή}Ή…Ω}™m±…‰•±t€τA904(4(€€€€€€€€€΄΄΄΄±¥Ω”ΝΡ…ΡΥΜ€΅Ι¥΅ΠΝ¥‘”¤€΄΄΄΄4(€€€€€€€ΝΡ…ΡΥΜ€τΡ¬ΉQ­Ι…µ”΅Ν•±ΉΡ½Α‰…Θ°™}½±½Θτ‰ΡΙ…ΉΝΑ…Ι•ΉΠ¤4(€€€€€€€ΝΡ…ΡΥΜΉΑ…¬΅Ν¥‘”τ‰Ι¥΅Π°Α…‘ΰτ ΐ°€Δΰ¤¤4(4(€€€€€€€Ν•±Ή‘½Π€τΡ¬ΉQ­1…‰•°΅ΝΡ…ΡΥΜ°Ρ•αΠτ‹^<°Ρ•αΡ}½±½ΘυI8°4(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€™½ΉΠυΡ¬ΉQ­½ΉΠ΅Ν¥ι”τΔΠ¤¤4(€€€€€€€Ν•±Ή‘½ΠΉΑ…¬΅Ν¥‘”τ‰±•™Π¤4(€€€€€€€ΑΥ±Ν”΅Ν•±Ή‘½Π°€‰Ρ•αΡ}½±½Θ°I8°I9}%4°Α•Ι¥½τΔάΐΐ°­•δτ‰‘½Π¤4(4(€€€€€€€Ρ¬ΉQ­1…‰•°΅ΝΡ…ΡΥΜ°Ρ•αΠτ‰Id°Ρ•αΡ}½±½Θυ5UQ°4(€€€€€€€€€€€€€€€€€€€€™½ΉΠυΡ¬ΉQ­½ΉΠ΅Ν¥ι”τΔΔ°έ•¥΅Πτ‰‰½±¤¤ΉΑ…¬ 4(€€€€€€€€€€€Ν¥‘”τ‰±•™Π°Α…‘ΰτ Τ°€ΔΠ¤¤4(4(€€€€€€€Ν•±Ή±½¬€τΡ¬ΉQ­1…‰•°΅ΝΡ…ΡΥΜ°Ρ•αΠτ΄΄θ΄΄θ΄΄°Ρ•αΡ}½±½ΘυI9}%4°4(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€™½ΉΠυΡ¬ΉQ­½ΉΠ΅Ν¥ι”τΔΘ¤¤4(€€€€€€€Ν•±Ή±½¬ΉΑ…¬΅Ν¥‘”τ‰±•™Π¤4(4(€€€€€€€€M•ΡΡ¥ΉΜΝ¥ΡΜ½ΈΡ΅”™…ΘΙ¥΅Π°…™Ρ•ΘΡ΅”ΝΡ…ΡΥΜ‰±½¬4(€€€€€€€Ν•ΡΡ¥ΉΝ}‰ΡΈ€τΝ•±Ή‰ΥΡΡ½ΉΝl‰M•ΡΡ¥ΉΜ‰t4(€€€€€€€Ν•ΡΡ¥ΉΝ}‰ΡΈΉΑ…­}™½Ι•Π ¤4(€€€€€€€Ν•ΡΡ¥ΉΝ}‰ΡΈΉΑ…¬΅Ν¥‘”τ‰Ι¥΅Π°Α…‘ΰτ ΐ°€Δΰ¤°Α…‘δτΔΘ¤4(4(€€€€€€€€€΄΄΄΄Ν±¥‘¥Ή…Ρ¥Ω”µΡ…¥Ή‘¥…Ρ½Θ€΅Ι•…Ρ•±…ΝΠ€τ½ΈΡ½ΐ¤€΄΄΄΄4(€€€€€€€€Α±…¥ΈΡ¬ΉΙ…µ”θΡ΅¥ΜΥΝΡ½µQ­¥ΉΡ•Θ‰Υ¥±™½Ι‰¥‘Μέ¥‘Ρ ½΅•¥΅Π¥ΈΑ±…” ¤4(€€€€€€€Ν•±ΉΉ…Ω}¥Ή‘¥…Ρ½Θ€τΡ¬ΉΙ…µ”΅Ν•±ΉΡ½Α‰…Θ°‰υI8°΅•¥΅ΠτΘ°4(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€΅¥΅±¥΅ΡΡ΅¥­Ή•ΝΜτΐ°‰τΐ¤4(€€€€€€€Ν•±ΉΉ…Ω}¥Ή‘¥…Ρ½ΘΉΑ±…”΅ΰτΐ°δτΤΤ°έ¥‘Ρ τΐ°΅•¥΅ΠτΘ¤4(4(€€€€€€€Ν•±ΉΡ½Α‰…ΘΉ‰¥Ή ρ½Ή™¥ΥΙ”ψ°±…µ‰‘„”θΝ•±Ή}µ½Ω•}¥Ή‘¥…Ρ½Θ 4(€€€€€€€€€€€Ν•±Ή‰ΥΡΡ½ΉΜΉ•Π΅Ν•±ΉΥΙΙ•ΉΠ¤°…Ή¥µ…Ρ•υ…±Ν”¤¤4(4(€€€€€€€€Ι••Έ±¥Ή”ΥΉ‘•ΘΡ΅”Ρ½ΐ‰…Θ4(€€€€€€€Ρ¬ΉQ­Ι…µ”΅Ν•±°΅•¥΅ΠτΘ°½ΙΉ•Ι}Ι…‘¥ΥΜτΐ°4(€€€€€€€€€€€€€€€€€€€€™}½±½Θυ	=IH¤ΉΑ…¬΅Ν¥‘”τ‰Ρ½ΐ°™¥±°τ‰ΰ¤4(4(€€€‘•}‰Υ¥±‘}…Ν¥‘”΅Ν•±¤θ4(€€€€€€€µ¥‘‘±”€τΡ¬ΉQ­Ι…µ”΅Ν•±°™}½±½Θτ‰ΡΙ…ΉΝΑ…Ι•ΉΠ¤4(€€€€€€€µ¥‘‘±”ΉΑ…¬΅Ν¥‘”τ‰Ρ½ΐ°™¥±°τ‰‰½Ρ °•αΑ…ΉυQΙΥ”¤4(4(€€€€€€€Ν•±Ή…Ν¥‘”€τΡ¬ΉQ­Ι…µ”΅µ¥‘‘±”°έ¥‘Ρ τΘΘΐ°½ΙΉ•Ι}Ι…‘¥ΥΜτΐ¤4(€€€€€€€Ν•±Ή…Ν¥‘”ΉΑ…¬΅Ν¥‘”τ‰±•™Π°™¥±°τ‰δ¤4(€€€€€€€Ν•±Ή…Ν¥‘”ΉΑ…­}ΑΙ½Α……Ρ”΅…±Ν”¤4(4(€€€€€€€΅•…€τΡ¬ΉQ­Ι…µ”΅Ν•±Ή…Ν¥‘”°™}½±½Θτ‰ΡΙ…ΉΝΑ…Ι•ΉΠ¤4(€€€€€€€΅•…ΉΑ…¬΅™¥±°τ‰ΰ°Α…‘ΰτΔΐ°Α…‘δτ Θΐ°€Μ¤¤4(4(€€€€€€€Ν•±Ή¥½ΉΝl‰•Ω¥”‰t€τ±½…‘}¥½Έ ‰‘•Ω¥”¤4(€€€€€€€Ν•±Ή‰ΥΡΡ½ΉΝl‰•Ω¥”‰t€τΡ¬ΉQ­	ΥΡΡ½Έ 4(€€€€€€€€€€€΅•…°Ρ•αΠτ‰•Ω¥”°¥µ…”υΝ•±Ή¥½ΉΝl‰•Ω¥”‰t°½µΑ½ΥΉτ‰±•™Π°4(€€€€€€€€€€€…Ή΅½Θτ‰ά°΅•¥΅ΠτΠΐ°4(€€€€€€€€€€€™}½±½ΘυA90°Ρ•αΡ}½±½ΘυI8°΅½Ω•Ι}½±½Θυ!=YH°4(€€€€€€€€€€€½µµ…Ήυ±…µ‰‘„θΝ•±ΉΝ΅½έ}Α…” ‰•Ω¥”¤°4(€€€€€€€€¤4(€€€€€€€±½ά΅Ν•±Ή‰ΥΡΡ½ΉΝl‰—Ξ=¶‰ΛkΊwµηP9½Ή”θ4(€€€€€€€€€€€‘¥Ι•Ρ¥½Έ€τ€Δ¥½Ι‘•ΘΉ¥Ή‘•ΰ΅Ή…µ”¤€ψτ½Ι‘•ΘΉ¥Ή‘•ΰ΅ΑΙ•Ω¥½ΥΜ¤•±Ν”€΄Δ4(€€€€€€€€€€€€ΝΡ½ΐ„Ν±¥‘”Ρ΅…Πµ…δΝΡ¥±°‰”ΙΥΉΉ¥Ή°½Ρ΅•Ιέ¥Ν”¥ΡΜΉ•αΠ™Ι…µ”4(€€€€€€€€€€€€έ½Υ±Α±…”Ρ΅”½±Α…”……¥Έ…™Ρ•Θέ”΅¥‘”¥Π4(€€€€€€€€€€€…Ή•°΅Ν•±ΉΑ…•ΝmΑΙ•Ω¥½ΥΝt°€‰Α…”µΝ±¥‘”¤4(€€€€€€€€€€€Ν•±ΉΑ…•ΝmΑΙ•Ω¥½ΥΝtΉΑ±…•}™½Ι•Π ¤4(4(€€€€€€€Α…”€τΝ•±ΉΑ…•ΝmΉ…µ•t4(€€€€€€€…Ή•°΅Α…”°€‰Α…”µΝ±¥‘”¤4(€€€€€€€Α…”Ή±¥™Π ¤4(4(€€€€€€€¥…Ή¥µ…Ρ•θ4(€€€€€€€€€€€½™™Ν•Π€τ€ΐΈΐΔΰ€¨‘¥Ι•Ρ¥½Έ4(€€€€€€€€€€€Α…”ΉΑ±…”΅Ι•±ΰυ½™™Ν•Π°Ι•±δτΐ°Ι•±έ¥‘Ρ τΔ°Ι•±΅•¥΅ΠτΔ¤4(€€€€€€€€€€€…Ή¥µ…Ρ”΅Α…”°€ΘΠΐ°4(€€€€€€€€€€€€€€€€€€€±…µ‰‘„ΠθΑ…”ΉΑ±…•}½Ή™¥ΥΙ”΅Ι•±ΰυ½™™Ν•Π€¨€ Δ€΄Π¤¤°4(€€€€€€€€€€€€€€€€€€€•…Ν”υ•…Ν•}½ΥΡ}Υ‰¥°­•δτ‰Α…”µΝ±¥‘”¤4(€€€€€€€•±Ν”θ4(€€€€€€€€€€€Α…”ΉΑ±…”΅Ι•±ΰτΐ°Ι•±δτΐ°Ι•±έ¥‘Ρ τΔ°Ι•±΅•¥΅ΠτΔ¤4(4(€€€€€€€Ν•±ΉΥΙΙ•ΉΠ€τΉ…µ”4(€€€€€€€Ν•±Ή}ΥΑ‘…Ρ•}Ή…Ψ΅Ή…µ”¤4(€€€€€€€Ν•±Ή}µ½Ω•}¥Ή‘¥…Ρ½Θ΅Ν•±Ή‰ΥΡΡ½ΉΜΉ•Π΅Ή…µ”¤°…Ή¥µ…Ρ•υ…Ή¥µ…Ρ•¤4(4(€€€‘•}ΥΑ‘…Ρ•}Ή…Ψ΅Ν•±°Ή…µ”¤θ4(€€€€€€€™½Θ±…‰•°°‰ΡΈ¥ΈΝ•±Ή‰ΥΡΡ½ΉΜΉ¥Ρ•µΜ ¤θ4(€€€€€€€€€€€ΝΡ…ΙΠ€τΝ•±Ή}Ή…Ω}™Ή•Π΅±…‰•°°A90¤4(€€€€€€€€€€€•Ή€τQ%Y¥±…‰•°€ττΉ…µ”•±Ν”A904(€€€€€€€€€€€¥ΝΡ…ΙΠ€ττ•Ήθ4(€€€€€€€€€€€€€€€½ΉΡ¥ΉΥ”4(€€€€€€€€€€€Ν•±Ή}Ή…Ω}™m±…‰•±t€τ•Ή4(€€€€€€€€€€€Ρέ••Έ΅‰ΡΈ°€‰™}½±½Θ°ΝΡ…ΙΠ°•Ή°€ΘΠΐ°­•δτ‰Ή…Ψµ™¤4(4(€€€‘•}µ½Ω•}¥Ή‘¥…Ρ½Θ΅Ν•±°‰ΡΈ°…Ή¥µ…Ρ•υQΙΥ”¤θ4(€€€€€€€¥‰ΡΈ¥Μ9½Ή”½ΘΉ½Π‰ΡΈΉέ¥Ή™½}•α¥ΝΡΜ ¤θ4(€€€€€€€€€€€Ι•ΡΥΙΈ4(€€€€€€€Ν•±ΉΡ½Α‰…ΘΉΥΑ‘…Ρ•}¥‘±•Ρ…Ν­Μ ¤4(€€€€€€€ΰ€τ‰ΡΈΉέ¥Ή™½}ΰ ¤€¬€ΰ4(€€€€€€€έ¥‘Ρ €τµ…ΰ Δΰ°‰ΡΈΉέ¥Ή™½}έ¥‘Ρ  ¤€΄€ΔΨ¤4(€€€€€€€ΰΐ°άΐ€τΝ•±Ή}¥Ή‘}ΰ°Ν•±Ή}¥Ή‘}ά4(€€€€€€€Ν•±Ή}¥Ή‘}ΰ°Ν•±Ή}¥Ή‘}ά€τΰ°έ¥‘Ρ 4(4(€€€€€€€¥Ή½Π…Ή¥µ…Ρ•θ4(€€€€€€€€€€€Ν•±ΉΉ…Ω}¥Ή‘¥…Ρ½ΘΉΑ±…•}½Ή™¥ΥΙ”΅ΰυΰ°έ¥‘Ρ υέ¥‘Ρ ¤4(€€€€€€€€€€€Ι•ΡΥΙΈ4(4(€€€€€€€…Ή¥µ…Ρ”΅Ν•±ΉΉ…Ω}¥Ή‘¥…Ρ½Θ°€ΘΨΐ°4(€€€€€€€€€€€€€€€±…µ‰‘„ΠθΝ•±ΉΉ…Ω}¥Ή‘¥…Ρ½ΘΉΑ±…•}½Ή™¥ΥΙ” 4(€€€€€€€€€€€€€€€€€€€ΰυΰΐ€¬€΅ΰ€΄ΰΐ¤€¨Π°έ¥‘Ρ υάΐ€¬€΅έ¥‘Ρ €΄άΐ¤€¨Π¤°4(€€€€€€€€€€€€€€€­•δτ‰¥Ή‘¥…Ρ½Θ¤4(4(€€€€€ττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττ4(€€€€€…Ν¥‘”‘•Ω¥”±¥ΝΠ4(€€€€€ττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττ4(€€€‘•Ρ½±•}‘•Ω¥•Μ΅Ν•±¤θ4(€€€€€€€Ν•±Ή‘•Ω¥•Ν}½Α•Έ€τΉ½ΠΝ•±Ή‘•Ω¥•Ν}½Α•Έ4(€€€€€€€¥Ν•±Ή‘•Ω¥•Ν}½Α•Έθ4(€€€€€€€€€€€Ν•±Ή‘•Ω¥•}±¥ΝΠΉΑ…¬΅™¥±°τ‰ΰ°Α…‘ΰτ Μΐ°€Δΐ¤¤4(€€€€€€€€€€€Ν•±Ή΅•ΨΉ½Ή™¥ΥΙ”΅Ρ•αΠτ‹Zψ¤4(€€€€€€€•±Ν”θ4(€€€€€€€€€€€Ν•±Ή‘•Ω¥•}±¥ΝΠΉΑ…­}™½Ι•Π ¤4(€€€€€€€€€€€Ν•±Ή΅•ΨΉ½Ή™¥ΥΙ”΅Ρ•αΠτ‹Zΰ¤4(4(€€€‘•Ι•™Ι•Ν΅}‘•Ω¥•Μ΅Ν•±¤θ4(€€€€€€€€‰-••ΐΡ΅”…Ν¥‘”±¥ΝΠ¥ΈΝεΉέ¥Ρ Ρ΅”•Ω¥”Α…”€΅΅•­Μ•Ω•ΙδΝ•½Ή¤Έ4(€€€€€€€‘•Ω¥•Μ€τΝ•±ΉΑ…•Νl‰•Ω¥”‰tΉ‘•Ω¥•Μ4(€€€€€€€ΝΉ…ΑΝ΅½Π€τl΅‘l‰Ή…µ”‰t°‘l‰½Ή±¥Ή”‰t¤™½Θ¥Έ‘•Ω¥•Νt4(€€€€€€€¥ΝΉ…ΑΝ΅½Π€„τΝ•±Ή}ΝΉ…ΑΝ΅½Πθ4(€€€€€€€€€€€Ν•±Ή}ΝΉ…ΑΝ΅½Π€τΝΉ…ΑΝ΅½Π4(€€€€€€€€€€€™½Θά¥ΈΝ•±Ή‘•Ω¥•}±¥ΝΠΉέ¥Ή™½}΅¥±‘Ι•Έ ¤θ4(€€€€€€€€€€€€€€€άΉ‘•ΝΡΙ½δ ¤4(€€€€€€€€€€€¥Ή½ΠΝΉ…ΑΝ΅½Πθ4(€€€€€€€€€€€€€€€Ρ¬ΉQ­1…‰•° 4(€€€€€€€€€€€€€€€€€€€Ν•±Ή‘•Ω¥•}±¥ΝΠ°Ρ•αΠτ‰9Ό‘•Ω¥•Με•Π°Ρ•αΡ}½±½Θυ5UQ4(€€€€€€€€€€€€€€€€¤ΉΑ…¬΅…Ή΅½Θτ‰ά°Α…‘δτΠ¤4(€€€€€€€€€€€™½ΘΉ…µ”°½Ή±¥Ή”¥ΈΝΉ…ΑΝ΅½Πθ4(€€€€€€€€€€€€€€€Ι½ά€τΡ¬ΉQ­Ι…µ”΅Ν•±Ή‘•Ω¥•}±¥ΝΠ°™}½±½Θτ‰ΡΙ…ΉΝΑ…Ι•ΉΠ¤4(€€€€€€€€€€€€€€€Ι½άΉΑ…¬΅™¥±°τ‰ΰ°Α…‘δτΘ¤4(€€€€€€€€€€€€€€€‘½Π€τΡ¬ΉQ­1…‰•° 4(€€€€€€€€€€€€€€€€€€€Ι½ά°Ρ•αΠτ‹^<°έ¥‘Ρ τΔΨ°4(€€€€€€€€€€€€€€€€€€€Ρ•αΡ}½±½ΘυI8¥½Ή±¥Ή”¥ΜQΙΥ”•±Ν”4(€€€€€€€€€€€€€€€€€€€I¥½Ή±¥Ή”¥Μ…±Ν”•±Ν”5UQ°4(€€€€€€€€€€€€€€€€¤4(€€€€€€€€€€€€€€€‘½ΠΉΑ…¬΅Ν¥‘”τ‰±•™Π¤4(€€€€€€€€€€€€€€€Ρ¬ΉQ­1…‰•°΅Ι½ά°Ρ•αΠυΉ…µ”°…Ή΅½Θτ‰ά¤ΉΑ…¬΅Ν¥‘”τ‰±•™Π°Α…‘ΰτΠ¤4(€€€€€€€€€€€€€€€Ι•Ω•…°΅Ι½ά¤4(€€€€€€€Ν•±Ή…™Ρ•Θ Δΐΐΐ°Ν•±ΉΙ•™Ι•Ν΅}‘•Ω¥•Μ¤4(4(€€€€€ττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττ4(€€€€€±¥Ω”ΝΡ…ΡΜ4(€€€€€ττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττ4(€€€‘•}ΝΡ…ΡΜ΅Ν•±¤θ4(€€€€€€€‘•Ω¥•Μ€τΝ•±ΉΑ…•Νl‰•Ω¥”‰tΉ‘•Ω¥•Μ4(€€€€€€€Ρ…Ν­Μ€τΝ•±ΉΑ…•Νl‰Q…Ν¬‰tΉΡ…Ν­Μ4(€€€€€€€½Ή±¥Ή”€τΝΥ΄ Δ™½Θ¥Έ‘•Ω¥•Μ4(€€€€€€€€€€€€€€€€€€€€¥Ή•Π ‰½ΉΉ•Ρ¥½Ή}ΡεΑ”¤€ττ€‰]¥Ή‘½έΜI@4(€€€€€€€€€€€€€€€€€€€€…Ή‘l‰½Ή±¥Ή”‰t¥ΜQΙΥ”¤4(€€€€€€€Ι•ΡΥΙΈμ4(€€€€€€€€€€€€‰‘•Ω¥•Μθ±•Έ΅‘•Ω¥•Μ¤°4(€€€€€€€€€€€€‰½Ή±¥Ή”θ½Ή±¥Ή”°4(€€€€€€€€€€€€‰Ρ…Ν­ΜθΝΥ΄ Δ™½ΘΠ¥ΈΡ…Ν­Μ¥Ή½ΠΡl‰‘½Ή”‰t¤°4(€€€€€€€€€€€€‰‘½Ή”θΝΥ΄ Δ™½ΘΠ¥ΈΡ…Ν­Μ¥Ρl‰‘½Ή”‰t¤°4(€€€€€€€€€€€€‰…±•ΙΡΜθΝΥ΄ Δ™½Θ¥Έ‘•Ω¥•Μ4(€€€€€€€€€€€€€€€€€€€€€€€€€¥Ή•Π ‰½ΉΉ•Ρ¥½Ή}ΡεΑ”¤€ττ€‰]¥Ή‘½έΜI@4(€€€€€€€€€€€€€€€€€€€€€€€€€…Ή‘l‰½Ή±¥Ή”‰t¥Μ…±Ν”¤°4(€€€€€€€€€€€€‰ΥΑΡ¥µ”θ¥ΉΠ΅Ρ¥µ”ΉΡ¥µ” ¤€΄Ν•±Ή}ΝΡ…ΙΡ•¤°4(€€€€€€€τ4(4(€€€‘•}Ρ¥¬΅Ν•±¤θ4(€€€€€€€ΝΡ…ΡΜ€τΝ•±Ή}ΝΡ…ΡΜ ¤4(€€€€€€€Ν•±ΉΑ…•Νl‰!½µ”‰tΉΝ•Ρ}ΝΡ…ΡΜ΅ΝΡ…ΡΜ¤4(€€€€€€€΅•­•‘}Ι‘ΐ€τm™½Θ¥ΈΝ•±ΉΑ…•Νl‰•Ω¥”‰tΉ‘•Ω¥•Μ4(€€€€€€€€€€€€€€€€€€€€€€¥Ή•Π ‰½ΉΉ•Ρ¥½Ή}ΡεΑ”¤€ττ€‰]¥Ή‘½έΜI@4(€€€€€€€€€€€€€€€€€€€€€€…Ή‘l‰½Ή±¥Ή”‰t¥ΜΉ½Π9½Ή•t4(€€€€€€€Ν•±Ή‘½ΠΉ½Ή™¥ΥΙ”΅Ρ•αΡ}½±½ΘυI8¥Ή½Π΅•­•‘}Ι‘ΐ½Θ4(€€€€€€€€€€€€€€€€€€€€€€€€€€…Ήδ΅‘l‰½Ή±¥Ή”‰t¥ΜQΙΥ”™½Θ¥Έ΅•­•‘}Ι‘ΐ¤•±Ν”I¤4(€€€€€€€Ν•±Ή±½¬Ή½Ή™¥ΥΙ”΅Ρ•αΠυ‘…Ρ•Ρ¥µ”Ή‘…Ρ•Ρ¥µ”ΉΉ½ά ¤ΉΝΡΙ™Ρ¥µ” • θ•4θ•L¤¤4(€€€€€€€Ν•±Ή…™Ρ•Θ Δΐΐΐ°Ν•±Ή}Ρ¥¬¤4(4(€€€€€ττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττ4(€€€€€‰½½Π½Ω•Ι±…δ4(€€€€€ττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττττ4(€€€‘•}‰½½Π΅Ν•±¤θ4(€€€€€€€Ν•±Ή}‰½½Ρ¥Ή€τQΙΥ”4(€€€€€€€½Ω•Ι±…δ€τΡ¬ΉQ­Ι…µ”΅Ν•±°™}½±½Θυ	°½ΙΉ•Ι}Ι…‘¥ΥΜτΐ¤4(€€€€€€€½Ω•Ι±…δΉΑ±…”΅Ι•±ΰτΐ°Ι•±δτΐ°Ι•±έ¥‘Ρ τΔ°Ι•±΅•¥΅ΠτΔ¤4(€€€€€€€½Ω•Ι±…δΉ±¥™Π ¤4(4(€€€€€€€‰½ΰ€τΡ¬ΉQ­Ι…µ”΅½Ω•Ι±…δ°™}½±½Θτ‰ΡΙ…ΉΝΑ…Ι•ΉΠ¤4(€€€€€€€‰½ΰΉΑ±…”΅Ι•±ΰτΐΈΤ°Ι•±δτΐΈΠΨ°…Ή΅½Θτ‰•ΉΡ•Θ¤4(4(€€€€€€€Ρ¬ΉQ­1…‰•°΅‰½ΰ°Ρ•αΠτ‰••ΑQΙ…­•Θ°4(€€€€€€€€€€€€€€€€€€€€™½ΉΠυΡ¬ΉQ­½ΉΠ΅Ν¥ι”τΠΨ°έ•¥΅Πτ‰‰½±¤°4(€€€€€€€€€€€€€€€€€€€€Ρ•αΡ}½±½ΘυI8¤ΉΑ…¬ ¤4(€€€€€€€Ρ¬ΉQ­1…‰•°΅‰½ΰ°Ρ•αΠτ‰MUIY%=9M=1€€ΌΌ€ΨΔΈΐ°4(€€€€€€€€€€€€€€€€€€€€Ρ•αΡ}½±½Θυ5UQ°4(€€€€€€€€€€€€€€€€€€€€™½ΉΠυΡ¬ΉQ­½ΉΠ΅Ν¥ι”τΔΔ¤¤ΉΑ…¬΅Α…‘δτ ΐ°€Θΐ¤¤4(4(€€€€€€€±½€τΡ¬ΉQ­Q•αΡ‰½ΰ΅‰½ΰ°έ¥‘Ρ τΠΠΐ°΅•¥΅ΠτδΘ°™}½±½Θυ9QId°4(€€€€€€€€€€€€€€€€€€€€€€€€€€€€‰½Ι‘•Ι}έ¥‘Ρ τΔ°‰½Ι‘•Ι}½±½Θυ	=IH°4(€€€€€€€€€€€€€€€€€€€€€€€€€€€€Ρ•αΡ}½±½ΘυI8°™½ΉΠυΡ¬ΉQ­½ΉΠ΅Ν¥ι”τΔΘ¤¤4(€€€€€€€±½ΉΑ…¬ ¤4(4(€€€€€€€‰…Θ€τΡ¬ΉQ­AΙ½Ι•ΝΝ	…Θ΅‰½ΰ°έ¥‘Ρ τΠΠΐ°΅•¥΅ΠτΠ°4(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ΑΙ½Ι•ΝΝ}½±½ΘυI8°™}½±½ΘυA90Θ¤4(€€€€€€€‰…ΘΉΝ•Π ΐ¤4(€€€€€€€‰…ΘΉΑ…¬΅Α…‘δτ ΔΘ°€ΐ¤¤4(4(€€€€€€€±¥Ή•Μ€τl4(€€€€€€€€€€€€‰ΝΡ…ΙΡ¥Ή••ΑQΙ…­•Θ€ΈΈΈΈ½¬°4(€€€€€€€€€€€€‰±½…‘¥ΉΝ…Ω•½ΉΉ•Ρ¥½ΉΜ€½¬°4(€€€€€€€€€€€€‰ΑΙ•Α…Ι¥Ή‘…Ν΅‰½…Ι€ΈΈΈΈΈΈ½¬°4(€€€€€€€€€€€€‰΅•­¥Ή±½…°Ν•ΡΡ¥ΉΜ€ΈΈ½¬°4(€€€€€€€t4(€€€€€€€ΝΡ…Ρ”€τμ‰‘½Ή”θ…±Ν•τ4(4(€€€€€€€‘•™¥Ή¥Ν ΅}•Ω•ΉΠυ9½Ή”¤θ4(€€€€€€€€€€€¥ΝΡ…Ρ•l‰‘½Ή”‰tθ4(€€€€€€€€€€€€€€€Ι•ΡΥΙΈ4(€€€€€€€€€€€ΝΡ…Ρ•l‰‘½Ή”‰t€τQΙΥ”4(€€€€€€€€€€€Ν•±Ή}‰½½Ρ¥Ή€τ…±Ν”4(€€€€€€€€€€€…Ή¥µ…Ρ”΅½Ω•Ι±…δ°€Θΰΐ°4(€€€€€€€€€€€€€€€€€€€±…µ‰‘„Πθ½Ω•Ι±…δΉΑ±…•}½Ή™¥ΥΙ”΅Ι•±δτ΄ΔΈΐ€¨Π¤°4(€€€€€€€€€€€€€€€€€€€½Ή}‘½Ή”υ±…µ‰‘„θ½Ω•Ι±…δΉέ¥Ή™½}•α¥ΝΡΜ ¤…Ή½Ω•Ι±…δΉ‘•ΝΡΙ½δ ¤°4(€€€€€€€€€€€€€€€€€€€­•δτ‰‰½½Πµ½ΥΠ¤4(4(€€€€€€€‘•ΝΡ•ΐ΅¤τΐ¤θ4(€€€€€€€€€€€¥ΝΡ…Ρ•l‰‘½Ή”‰tθ4(€€€€€€€€€€€€€€€Ι•ΡΥΙΈ4(€€€€€€€€€€€¥¤€π±•Έ΅±¥Ή•Μ¤θ4(€€€€€€€€€€€€€€€±½Ή¥ΉΝ•ΙΠ ‰•Ή°ψν±¥Ή•Νm¥uυqΈ¤4(€€€€€€€€€€€€€€€±½ΉΝ•” ‰•Ή¤4(€€€€€€€€€€€€€€€‰…ΘΉΝ•Π ΅¤€¬€Δ¤€Ό±•Έ΅±¥Ή•Μ¤¤4(€€€€€€€€€€€€€€€½Ω•Ι±…δΉ…™Ρ•Θ ΔΠΐ°±…µ‰‘„θΝΡ•ΐ΅¤€¬€Δ¤¤4(€€€€€€€€€€€•±Ν”θ4(€€€€€€€€€€€€€€€‰…ΘΉΝ•Π Δ¤4(€€€€€€€€€€€€€€€½Ω•Ι±…δΉ…™Ρ•Θ ΘΘΐ°™¥Ή¥Ν ¤4(4(€€€€€€€½Ω•Ι±…δΉ‰¥Ή ρ	ΥΡΡ½Έ΄Δψ°™¥Ή¥Ν ¤4(€€€€€€€½Ω•Ι±…δΉ…™Ρ•Θ ΔΠΐ°ΝΡ•ΐ¤4(4(4)¥}}Ή…µ•}|€ττ€‰}}µ…¥Ή}|θ4(€€€••ΑQΙ…­•ΙΑΐ ¤Ήµ…¥Ή±½½ΐ ¤4(
+import datetime
+import os
+import time
+
+import tkinter as tk
+
+import customtkinter as ctk
+
+from anim import animate, cancel, ease_out_cubic, pulse, tween
+from theme import (ACTIVE, BG, BORDER, ENTRY, GLOW, GREEN, GREEN_DIM, HOVER,
+                   MUTED, PANEL, PANEL2, RED, apply_theme)
+from terminal import Terminal
+from ui import ambient_background, glow, reveal, toast
+from utils import ICON_DIR, load_brand_icon, load_icon
+
+from pages.Home import HomePage
+from pages.Task import TaskPage
+from pages.Device import DevicePage
+from pages.Settings import SettingsPage
+
+# Links in the TOP bar (label, page class, icon)
+TOP_PAGES = [
+    ("Home", HomePage, "home"),
+    ("Task", TaskPage, "task"),
+    ("Settings", SettingsPage, "settings"),
+]
+
+
+class DeepTrackerApp(ctk.CTk):
+    def __init__(self):
+        apply_theme()
+        super().__init__()
+        ctk.set_appearance_mode("dark")
+
+        self.title("DeepTracker")
+        self.geometry("1250x800+2+2")
+        self.minsize(1080, 700)
+        self.after(40, self._fit_to_screen)
+
+        ico = os.path.join(ICON_DIR, "app.ico")
+        if os.path.exists(ico):
+            self.after(200, lambda: self.iconbitmap(ico))
+
+        self.buttons = {}
+        self.pages = {}
+        self.current = None
+        self.icons = {}
+        self._snapshot = None
+        self.devices_open = True
+        self._started = time.time()
+        self._nav_fg = {}
+        self._ind_x = 0.0
+        self._ind_w = 0.0
+        self._toast = None
+        self._booting = False
+        self._notifications_enabled = True
+
+        self._build_topbar()
+        self._build_aside()
+        self._build_pages()
+        self._wire()
+        self._bind_shortcuts()
+
+        self.show_page("Home", animated=False)
+        self.refresh_devices()
+        self._tick()
+
+        self._boot()
+        self.after(1900, lambda: toast(self, "All systems online", "info", 1800))
+
+    # ==================================================================
+    #  screen fit
+    # ==================================================================
+    def _fit_to_screen(self):
+        """Shrink the whole UI when the display is smaller than the design."""
+        screen_w = self.winfo_screenwidth()
+        screen_h = self.winfo_screenheight()
+
+        try:
+            from customtkinter.windows.widgets.scaling.scaling_tracker import (
+                ScalingTracker,
+            )
+            dpi = ScalingTracker.get_window_dpi_scaling(self) or 1.0
+        except Exception:
+            dpi = 1.0
+
+        # Tk reports virtualized pixels when the process is DPI-unaware,
+        # so the real desktop is (logical size * dpi scaling).
+        physical_w = screen_w * dpi
+        physical_h = screen_h * dpi
+
+        target = min(1.25, (physical_w - 24) / 1250, (physical_h - 100) / 800)
+        factor = max(0.35, target / dpi)
+
+        if factor < 0.995:
+            ctk.set_window_scaling(factor)
+            ctk.set_widget_scaling(factor)
+            self.geometry("1250x800+2+2")
+
+    # ==================================================================
+    #  layout
+    # ==================================================================
+    def _build_topbar(self):
+        self.topbar = ctk.CTkFrame(self, height=60, corner_radius=0)
+        self.topbar.pack(side="top", fill="x")
+        self.topbar.pack_propagate(False)
+
+        brand_group = ctk.CTkFrame(self.topbar, fg_color="transparent")
+        brand_group.pack(side="left", padx=(18, 10), pady=7)
+        self.brand_icon = load_brand_icon(32)
+        ctk.CTkLabel(brand_group, text="", image=self.brand_icon,
+                     width=32, height=32).pack(side="left", padx=(0, 9))
+        brand_copy = ctk.CTkFrame(brand_group, fg_color="transparent")
+        brand_copy.pack(side="left")
+        self.brand = ctk.CTkLabel(
+            brand_copy, text="DeepTracker",
+            font=ctk.CTkFont(size=18, weight="bold"), text_color=GREEN,
+        )
+        self.brand.pack(anchor="w")
+        ctk.CTkLabel(brand_copy, text="DEVICE CONSOLE", text_color=MUTED,
+                     font=ctk.CTkFont(size=9, weight="bold")).pack(anchor="w")
+        pulse(self.brand, "text_color", GREEN, GLOW, period=4200, key="brand")
+
+        first = True
+        for label, _page_class, icon_name in TOP_PAGES:
+            self.icons[label] = load_icon(icon_name)
+            btn = ctk.CTkButton(
+                self.topbar, text=label, image=self.icons[label], compound="left",
+                width=126, height=36,
+                fg_color=PANEL, text_color=GREEN,
+                hover_color=HOVER,
+                command=lambda name=label: self.show_page(name),
+            )
+            glow(btn)
+            left_margin = 16 if first else 3
+            first = False
+            btn.pack(side="left", padx=(left_margin, 3), pady=12)
+            self.buttons[label] = btn
+            self._nav_fg[label] = PANEL
+
+        # ---- live status (right side) ----
+        status = ctk.CTkFrame(self.topbar, fg_color="transparent")
+        status.pack(side="right", padx=(0, 18))
+
+        self.dot = ctk.CTkLabel(status, text="β—", text_color=GREEN,
+                                font=ctk.CTkFont(size=14))
+        self.dot.pack(side="left")
+        pulse(self.dot, "text_color", GREEN, GREEN_DIM, period=1700, key="dot")
+
+        ctk.CTkLabel(status, text="READY", text_color=MUTED,
+                     font=ctk.CTkFont(size=11, weight="bold")).pack(
+            side="left", padx=(5, 14))
+
+        self.clock = ctk.CTkLabel(status, text="--:--:--", text_color=GREEN_DIM,
+                                  font=ctk.CTkFont(size=12))
+        self.clock.pack(side="left")
+
+        # Settings sits on the far right, after the status block
+        settings_btn = self.buttons["Settings"]
+        settings_btn.pack_forget()
+        settings_btn.pack(side="right", padx=(0, 18), pady=12)
+
+        # ---- sliding active-tab indicator (created last = on top) ----
+        # plain tk.Frame: this CustomTkinter build forbids width/height in place()
+        self.nav_indicator = tk.Frame(self.topbar, bg=GREEN, height=2,
+                                      highlightthickness=0, bd=0)
+        self.nav_indicator.place(x=0, y=55, width=0, height=2)
+
+        self.topbar.bind("<Configure>", lambda e: self._move_indicator(
+            self.buttons.get(self.current), animated=False))
+
+        # green line under the top bar
+        ctk.CTkFrame(self, height=2, corner_radius=0,
+                     fg_color=BORDER).pack(side="top", fill="x")
+
+    def _build_aside(self):
+        middle = ctk.CTkFrame(self, fg_color="transparent")
+        middle.pack(side="top", fill="both", expand=True)
+
+        self.aside = ctk.CTkFrame(middle, width=220, corner_radius=0)
+        self.aside.pack(side="left", fill="y")
+        self.aside.pack_propagate(False)
+
+        head = ctk.CTkFrame(self.aside, fg_color="transparent")
+        head.pack(fill="x", padx=10, pady=(20, 3))
+
+        self.icons["Device"] = load_icon("device")
+        self.buttons["Device"] = ctk.CTkButton(
+            head, text="Device", image=self.icons["Device"], compound="left",
+            anchor="w", height=40,
+            fg_color=PANEL, text_color=GREEN, hover_color=HOVER,
+            command=lambda: self.show_page("Device"),
+        )
+        glow(self.buttons["Device"])
+        self.buttons["Device"].pack(side="left", fill="x", expand=True)
+        self._nav_fg["Device"] = PANEL
+
+        self.chev = ctk.CTkButton(
+            head, text="β–Ύ", width=34, height=40,
+            fg_color="transparent", hover_color=HOVER, text_color=GREEN,
+            command=self.toggle_devices,
+        )
+        self.chev.configure(hover=False)
+        self.chev.pack(side="right", padx=(3, 0))
+
+        self.device_list = ctk.CTkFrame(self.aside, fg_color="transparent")
+        self.device_list.pack(fill="x", padx=(30, 10))
+
+        # body: terminal at the bottom, pages above
+        self.body = ctk.CTkFrame(middle, fg_color="transparent")
+        self.body.pack(side="right", fill="both", expand=True)
+
+        self.terminal = Terminal(self.body)
+        self.terminal.pack(side="bottom", fill="x", padx=30, pady=(0, 18))
+
+        self.container = ctk.CTkFrame(self.body, fg_color="transparent")
+        self.container.pack(side="top", fill="both", expand=True)
+
+    def _build_pages(self):
+        self.pages["Device"] = DevicePage(self.container)
+        for label, page_class, _icon in TOP_PAGES:
+            self.pages[label] = page_class(self.container)
+        for page in self.pages.values():
+            ambient_background(page)
+
+    def _wire(self):
+        self.terminal.navigate = self.show_page
+        self.terminal.page_names = list(self.pages.keys())
+        self.terminal.stats = self._stats
+        self.terminal.devices = lambda: self.pages["Device"].devices
+        self.terminal.notify = lambda text, kind="info": toast(self, text, kind)
+
+        self.pages["Home"].navigate = self.show_page
+        self.pages["Settings"].app = self
+
+    def _bind_shortcuts(self):
+        for i, (_label, _cls, _icon) in enumerate(TOP_PAGES, start=1):
+            name = _label
+            self.bind(f"<Control-Key-{i}>", lambda e, n=name: self.show_page(n))
+        self.bind("<Control-Key-k>", lambda e: self.terminal.entry.focus_set())
+        self.bind("<Escape>", lambda e: self.terminal.entry.delete(0, "end"))
+
+    # ==================================================================
+    #  navigation
+    # ==================================================================
+    def show_page(self, name, animated=True):
+        if name not in self.pages:
+            return
+        if name == self.current:
+            return
+
+        previous = self.current
+        order = list(self.pages)
+        direction = 1
+        if previous is not None:
+            direction = 1 if order.index(name) >= order.index(previous) else -1
+            # stop a slide that may still be running, otherwise its next frame
+            # would place the old page again after we hide it
+            cancel(self.pages[previous], "page-slide")
+            self.pages[previous].place_forget()
+
+        page = self.pages[name]
+        cancel(page, "page-slide")
+        page.lift()
+
+        if animated:
+            offset = 0.018 * direction
+            page.place(relx=offset, rely=0, relwidth=1, relheight=1)
+            animate(page, 240,
+                    lambda t: page.place_configure(relx=offset * (1 - t)),
+                    ease=ease_out_cubic, key="page-slide")
+        else:
+            page.place(relx=0, rely=0, relwidth=1, relheight=1)
+
+        self.current = name
+        self._update_nav(name)
+        self._move_indicator(self.buttons.get(name), animated=animated)
+
+    def _update_nav(self, name):
+        for label, btn in self.buttons.items():
+            start = self._nav_fg.get(label, PANEL)
+            end = ACTIVE if label == name else PANEL
+            if start == end:
+                continue
+            self._nav_fg[label] = end
+            tween(btn, "fg_color", start, end, 240, key="nav-fg")
+
+    def _move_indicator(self, btn, animated=True):
+        if btn is None or not btn.winfo_exists():
+            return
+        self.topbar.update_idletasks()
+        x = btn.winfo_x() + 8
+        width = max(18, btn.winfo_width() - 16)
+        x0, w0 = self._ind_x, self._ind_w
+        self._ind_x, self._ind_w = x, width
+
+        if not animated:
+            self.nav_indicator.place_configure(x=x, width=width)
+            return
+
+        animate(self.nav_indicator, 260,
+                lambda t: self.nav_indicator.place_configure(
+                    x=x0 + (x - x0) * t, width=w0 + (width - w0) * t),
+                key="indicator")
+
+    # ==================================================================
+    #  aside device list
+    # ==================================================================
+    def toggle_devices(self):
+        self.devices_open = not self.devices_open
+        if self.devices_open:
+            self.device_list.pack(fill="x", padx=(30, 10))
+            self.chev.configure(text="β–Ύ")
+        else:
+            self.device_list.pack_forget()
+            self.chev.configure(text="β–Έ")
+
+    def refresh_devices(self):
+        """Keep the aside list in sync with the Device page (checks every second)."""
+        devices = self.pages["Device"].devices
+        snapshot = [(d["name"], d["online"]) for d in devices]
+        if snapshot != self._snapshot:
+            self._snapshot = snapshot
+            for w in self.device_list.winfo_children():
+                w.destroy()
+            if not snapshot:
+                ctk.CTkLabel(
+                    self.device_list, text="No devices yet", text_color=MUTED
+                ).pack(anchor="w", pady=4)
+            for name, online in snapshot:
+                row = ctk.CTkFrame(self.device_list, fg_color="transparent")
+                row.pack(fill="x", pady=2)
+                dot = ctk.CTkLabel(
+                    row, text="β—", width=16,
+                    text_color=GREEN if online is True else
+                    RED if online is False else MUTED,
+                )
+                dot.pack(side="left")
+                ctk.CTkLabel(row, text=name, anchor="w").pack(side="left", padx=4)
+                reveal(row)
+        self.after(1000, self.refresh_devices)
+
+    # ==================================================================
+    #  live stats
+    # ==================================================================
+    def _stats(self):
+        devices = self.pages["Device"].devices
+        tasks = self.pages["Task"].tasks
+        online = sum(1 for d in devices
+                     if d.get("connection_type") == "Windows RDP"
+                     and d["online"] is True)
+        return {
+            "devices": len(devices),
+            "online": online,
+            "tasks": sum(1 for t in tasks if not t["done"]),
+            "done": sum(1 for t in tasks if t["done"]),
+            "alerts": sum(1 for d in devices
+                          if d.get("connection_type") == "Windows RDP"
+                          and d["online"] is False),
+            "uptime": int(time.time() - self._started),
+        }
+
+    def _tick(self):
+        stats = self._stats()
+        self.pages["Home"].set_stats(stats)
+        checked_rdp = [d for d in self.pages["Device"].devices
+                       if d.get("connection_type") == "Windows RDP"
+                       and d["online"] is not None]
+        self.dot.configure(text_color=GREEN if not checked_rdp or
+                           any(d["online"] is True for d in checked_rdp) else RED)
+        self.clock.configure(text=datetime.datetime.now().strftime("%H:%M:%S"))
+        self.after(1000, self._tick)
+
+    # ==================================================================
+    #  boot overlay
+    # ==================================================================
+    def _boot(self):
+        self._booting = True
+        overlay = ctk.CTkFrame(self, fg_color=BG, corner_radius=0)
+        overlay.place(relx=0, rely=0, relwidth=1, relheight=1)
+        overlay.lift()
+
+        box = ctk.CTkFrame(overlay, fg_color="transparent")
+        box.place(relx=0.5, rely=0.46, anchor="center")
+
+        ctk.CTkLabel(box, text="DeepTracker",
+                     font=ctk.CTkFont(size=46, weight="bold"),
+                     text_color=GREEN).pack()
+        ctk.CTkLabel(box, text="SECURE DEVICE CONSOLE  //  v1.0",
+                     text_color=MUTED,
+                     font=ctk.CTkFont(size=11)).pack(pady=(0, 20))
+
+        log = ctk.CTkTextbox(box, width=440, height=92, fg_color=ENTRY,
+                             border_width=1, border_color=BORDER,
+                             text_color=GREEN, font=ctk.CTkFont(size=12))
+        log.pack()
+
+        bar = ctk.CTkProgressBar(box, width=440, height=4,
+                                 progress_color=GREEN, fg_color=PANEL2)
+        bar.set(0)
+        bar.pack(pady=(12, 0))
+
+        lines = [
+            "starting DeepTracker .... ok",
+            "loading saved connections  ok",
+            "preparing dashboard ...... ok",
+            "checking local settings .. ok",
+        ]
+        state = {"done": False}
+
+        def finish(_event=None):
+            if state["done"]:
+                return
+            state["done"] = True
+            self._booting = False
+            animate(overlay, 280,
+                    lambda t: overlay.place_configure(rely=-1.0 * t),
+                    on_done=lambda: overlay.winfo_exists() and overlay.destroy(),
+                    key="boot-out")
+
+        def step(i=0):
+            if state["done"]:
+                return
+            if i < len(lines):
+                log.insert("end", f"> {lines[i]}\n")
+                log.see("end")
+                bar.set((i + 1) / len(lines))
+                overlay.after(140, lambda: step(i + 1))
+            else:
+                bar.set(1)
+                overlay.after(220, finish)
+
+        overlay.bind("<Button-1>", finish)
+        overlay.after(140, step)
+
+
+if __name__ == "__main__":
+    DeepTrackerApp().mainloop()
